@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Abdelrhman
+# 👋 Hi, I'm Abdelrhman Osman 
 
 🎓 IT Health Student  
 💡 AI & HealthTech Enthusiast  
